@@ -12,7 +12,9 @@ The CCP official National Security Agency: 國安
 The CCP's Party Spy System: 中共統戰, 中共中聯部
 The CCP Military: 中央軍委辦公室
 see zhina.red 紅岸基金會 (it does not means 支那, it means CCP and the closed mind (taught by CCP school)* make PRC citizens 支那)
-*close mind including but not limited: 文化大革命 which only the shit (falsehood) is Truthsocial, and say all chinese culture is 封建迷信.
+*close mind including but not limited: 
+1. 文化大革命 which only the shit (falsehood) is Truthsocial, and say all chinese culture is 封建迷信.
+2. Say Chinese Culture or communist is all we should learn, and block the country.
 
 While there are Xi JinPing's own Spy, independent to CCP.
 習近平辦公室
